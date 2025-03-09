@@ -1,1 +1,1 @@
-![https://lunova.studio/wonderlab](https://lunova.studio/wp-content/uploads/2025/03/wonderlab_olenui_bard.png)
+<a href="https://lunova.studio/wonderlab"><img src="https://s21.ax1x.com/2025/03/09/pEtOJEV.png" alt="pEtOJEV.png" border="0" /></a>
